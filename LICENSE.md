@@ -1,4 +1,4 @@
-
+easter tap simulator Script instant offers the most advanced easter tap simulator Script, with auto-collect and custom skins. Perfect for dominating
 
 
 
